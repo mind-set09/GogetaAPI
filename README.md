@@ -17,3 +17,8 @@ Constant Updates
 ----------------------------------------
 
 ![image](https://github.com/mind-set09/GogetaAPI/assets/141085830/e3b7b1e8-dfc9-467f-95da-d8530abdbe4b)
+
+
+
+
+- https://discord.gg/cTB37ARvfj
